@@ -4,6 +4,8 @@
 - 3 ripe avocados
 - 1 lime, juiced
 - 1 teaspoon salt
+
+For the salad mix:
 - 1/2 cup diced onion
 - 3 tablespoons chopped fresh cilantro
 - 2 roma (plum) tomatoes, diced
