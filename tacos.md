@@ -1,5 +1,5 @@
 # Ingredients
-- 1 lb vegetarian protein
+- Don't use proteins
 - 1 packet taco seasoning
 - 8 small tortillas
 - 1 cup shredded lettuce
