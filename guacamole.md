@@ -15,4 +15,4 @@ For the salad mix:
 
 ## Preparation:
 
-
+1. In a medium bowl, mash together the avocados, lime juice, and salt.
